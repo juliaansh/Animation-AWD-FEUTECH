@@ -1,1 +1,1 @@
-# Mendoza-AnimationProject-AWD-FEUTECH
+# Animation-AWD-FEUTECH
